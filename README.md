@@ -1,0 +1,1 @@
+# IrwinYauri-NLP-Analisis-Visual-Texto
